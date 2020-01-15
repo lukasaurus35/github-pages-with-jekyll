@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Luke Raymons
 
-I'm glad you are here. I plan to talk about ...
+s3831924
+s3831924@student.rmit.edu.au
